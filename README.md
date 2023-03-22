@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **luiisa.castillo21@gmail.com**
 
-- ⚡ Fun fact **I am also learning foreign languages, my BA is in translation and interpretation. Right now I'm learning Korean! :D**
+- ⚡ Fun fact: **I am also learning foreign languages, my BA is in translation and interpretation. Right now I'm learning Korean! :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
