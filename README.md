@@ -5,6 +5,8 @@
 
 - 🌱 I’m currently learning **Java, JS, MySQL, HTML, CSS, Spring Boot**
 
+- 🤓 Also learning Project Management, Agile Methodologies and improving my English! 
+ 
 - 📫 How to reach me **luiisa.castillo21@gmail.com**
 
 - ⚡ Fun fact: **I am also learning foreign languages, my BA is in translation and interpretation. Right now I'm learning Korean! :D**
